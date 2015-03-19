@@ -1,2 +1,6 @@
 # clasedegithub
-esta es una clase u.u
+he modificado esta clase
+kmp msplvmpflvmelfvmlv
+pvmelvmlefmvĺmv
+wdpǘmĺfmvwĺfvm
+
